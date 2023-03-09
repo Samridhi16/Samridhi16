@@ -1,4 +1,4 @@
-### Welcome to the code-side💻...we have cookies🍪! 👽
+### Come to the code-side💻...we have cookies🍪! 👽
 
 - 👀 Looking for a full-time opportunity as Software Developer Engineer.
 - 📚 Currently pursuing Master's in Computer Science at RIT.
